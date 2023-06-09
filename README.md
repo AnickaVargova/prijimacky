@@ -1,0 +1,1 @@
+# prijimacky
